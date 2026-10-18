@@ -41,5 +41,5 @@ A vertical (9:16) video ad plan for an Asian grocery store at Friheden Shoppingc
 
 ## Contact
 
-- LinkedIn: https://www.linkedin.com/in/YOUR-LINKEDIN
+- LinkedIn: www.linkedin.com/in/bishal-lama-17b6a228b
 - Location: Copenhagen, Denmark
